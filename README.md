@@ -1,3 +1,3 @@
 # Damian Krawiec
 
-[Linkedin](linkedin.com/in/damiankrawiec/)
+[Linkedin](https://linkedin.com/in/damiankrawiec/)
